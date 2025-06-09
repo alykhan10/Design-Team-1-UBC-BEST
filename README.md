@@ -1,3 +1,3 @@
-# Design Team: UBC BEST
+# Design Team #1: UBC BEST
 
 
